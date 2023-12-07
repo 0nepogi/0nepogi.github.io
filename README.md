@@ -1,3 +1,3 @@
 # 0nepogi.github.io
-## Draego Uno A. Bonggao
+Draego Uno A. Bonggao
 
