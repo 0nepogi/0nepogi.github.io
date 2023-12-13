@@ -14,10 +14,15 @@ Teeth was formed in September 1993 by Glenn Jacinto (vocals), Jerome Velasco (gu
 **Complete List of Members:**
 
 Glenn Jacinto - lead vocals, guitar (1993-2003, 2014-present)
+
 Jerome Velasco - guitar, backing vocals (1993-2003, 2014-present)
+
 Andrew "Dok" Sergio - guitar, backing vocals (2014–present), bass (1997-2003)
+
 Pedz Narvaja - bass (1993-1997, 2014–present)
+
 Mike Dizon - drums, percussion (1993-2003, 2014–present)
+
 
 The group took a massive hiatus focusing on other musical projects.
 Like [Nirvana,](https://en.wikipedia.org/wiki/Nirvana_(band)) after the band disbanded, the individual members created bands that would go on to be successful. Jerome Velasco, Teeth's guitarist with former-[Eraserheads](https://en.wikipedia.org/wiki/Eraserheads) frontman Ely Buendia formed The Mongols(Now [Pupil](https://en.wikipedia.org/wiki/Pupil_(band)), and was joined by Teeth’s bassist (later second guitarist) Dok Sergio.
