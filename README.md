@@ -39,15 +39,15 @@ Hopefully, as time passes by, we are blessed with another release from the band,
 Complete Discography including EP's and Compilations:
 
 Studio albums:
-Teeth (1995)
-Time Machine (1997)
+Teeth (1995),
+Time Machine (1997),
 I Was A Teenage Tree (1999)
 
 Extended plays:
 Bum Squad (1997)
 
 Compilations:
-Teeth - The Greatest Hits (2001)
+Teeth - The Greatest Hits (2001),
 Dogs Can Fly - The Best of Teeth (2003)
 
 ![bolddd](https://cdns-images.dzcdn.net/images/cover/6ec52c29c3969e12509b3f4ef79debfd/350x350.jpg)
