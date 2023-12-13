@@ -3,6 +3,7 @@ As said on [Wikipedia](9https://en.wikipedia.org/wiki/Teeth_(Filipino_band)), is
 ![image](https://i.scdn.co/image/ab67616d0000b2734dc198b33e966c3833db809f)
 ## **Album Cover of "I was a Teenage Tree"**
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Ci5c9eQFwgw?si=REO-4FJzJ27_qNXJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
 ## **My personal favorite from the Album**
 The band came out on top in the 1990's alternative rock boom with their top song: "Laklak," serving as a an anthem for drinking around the Philippines.
 Teeth was formed in September 1993 by Glenn Jacinto (vocals), Jerome Velasco (guitars), Dok Sergio (guitars, formerly bass), Peding Narvaja (bass), and Mike Dizon (drums). Narvaja, Velasco, and Dizon were originally in a group called Riftshifta, while Jacinto was in Loudhouse.
