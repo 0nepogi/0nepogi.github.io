@@ -35,8 +35,9 @@ Teeth - The Greatest Hits (2001)
 Dogs Can Fly - The Best of Teeth (2003)
 
 ![bolddd](https://cdns-images.dzcdn.net/images/cover/6ec52c29c3969e12509b3f4ef79debfd/350x350.jpg
+
 On May 15, 2014, the band reunited after 10 years of hiatus. For the first time, the band brought back Pedz Narvaja as bassist while Dok Sergio switched to guitars, thus making a five-piece line up. They performed a reunion concert at Metro Tent in Pasig. They later went on to perform several reunion shows in 2015. As of 2016, the band continued their other ventures as Jacinto and Narvaja are currently based in the United States, while Sergio and Velasco performs with Pupil and Dizon still plays drums with Sandwich and Pedicab.)
 Hopefully, as time passes by, we are blessed with another release from the band, as fans, old and young await for their return.
 
-
-
+Draego Uno A. Bonggao
+9-Pro
