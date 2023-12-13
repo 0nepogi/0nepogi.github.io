@@ -51,7 +51,7 @@ Dogs Can Fly - The Best of Teeth (2003)
 
 ![bolddd](https://cdns-images.dzcdn.net/images/cover/6ec52c29c3969e12509b3f4ef79debfd/350x350.jpg)
 
-**Album Cover of "Dogs Can Fly-The Best of Teeth (2003)
+**Album Cover of "Dogs Can Fly-The Best of Teeth (2003)**
 
 
 Draego Uno A. Bonggao
