@@ -1,4 +1,4 @@
-# The Teeth, the Philippines' Nirvana
+## The Teeth, the Philippines' Nirvana
 As said on [Wikipedia](https://en.wikipedia.org/wiki/Teeth_(Filipino_band)), is a Filipino rock band formed in 1993.The band is currently composed of Glenn Jacinto on vocals, Jerome Velasco on guitars, Pedz Narvaja on bass, Mike Dizon on drums, and Dok Sergio on guitars (formerly on bass). Their music style is described as a mix of alternative rock and grunge, with some shoegaze influences evident in their third full-length album, **"I was a Teenage Tree"**
 ![image](https://i.scdn.co/image/ab67616d0000b2734dc198b33e966c3833db809f)
 **Album Cover of "I was a Teenage Tree"**
@@ -11,7 +11,8 @@ Teeth was formed in September 1993 by Glenn Jacinto (vocals), Jerome Velasco (gu
 
 ![regvregre](https://contents.pep.ph/images2/images2/2023/08/10/new-project-41-1691634065.jpg)
 
-Complete List of Members:
+**Complete List of Members:**
+
 Glenn Jacinto - lead vocals, guitar (1993-2003, 2014-present)
 Jerome Velasco - guitar, backing vocals (1993-2003, 2014-present)
 Andrew "Dok" Sergio - guitar, backing vocals (2014–present), bass (1997-2003)
@@ -26,8 +27,7 @@ On May 15, 2014, the band reunited after 10 years of hiatus. For the first time,
 Hopefully, as time passes by, we are blessed with another release from the band, as fans, old and young await for their return.
 
 ![image](https://github.com/0nepogi/0nepogi.github.io/assets/152353109/842231d0-87a4-4144-9ed7-27dee1ea5e67)
-Photo from their reunion, courtesy of Rappler PH
-
+**Photo from their reunion, courtesy of Rappler PH**
 
 
 Complete Discography including EP's and Compilations:
@@ -48,6 +48,7 @@ Dogs Can Fly - The Best of Teeth (2003)
 
 
 Draego Uno A. Bonggao
+
 9-Pro
 
 
