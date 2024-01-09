@@ -10,7 +10,7 @@ As said on [Wikipedia](https://en.wikipedia.org/wiki/Teeth_(Filipino_band)), is 
 The band came out on top in the 1990's alternative rock boom with their top song: "Laklak," serving as a an anthem for drinking around the Philippines.
 Teeth was formed in September 1993 by Glenn Jacinto (vocals), Jerome Velasco (guitars), Dok Sergio (guitars, formerly bass), Peding Narvaja (bass), and Mike Dizon (drums). Narvaja, Velasco, and Dizon were originally in a group called Riftshifta, while Jacinto was in Loudhouse.
 
-![regvregre](https://contents.pep.ph/images2/images2/2023/08/10/new-project-41-1691634065.jpg)
+![boldlover](https://contents.pep.ph/images2/images2/2023/08/10/new-project-41-1691634065.jpg)
 
 **Complete List of Members:**
 
